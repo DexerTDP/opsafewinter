@@ -143,6 +143,7 @@ Because when you follow up with a group of people who are mostly overlooked, uns
 alot.
 
 <ins>In what not to do</ins>
+
 *Use the homeless population for social currency
 Now this wasn't a thing before. But ever since the youtube channel 'Soft white underbelly' came to 
 predominance. Many who try to find these characters to interview or see what they are. In itself can be a
