@@ -71,10 +71,10 @@ From there, I realized that this op in paritcular was multiple ops rolled into o
 
 This is the toughest question to ask because how can you help is such a broad question.
 
--*Can I help with money?*
--*Can I help with supplies?*
--*Can I help with getting them to treatment if they are an addict?*
--*Can I help with getting them to apply for emergency housing?*
+- *Can I help with money?*
+- *Can I help with supplies?*
+- *Can I help with getting them to treatment if they are an addict?*
+- *Can I help with getting them to apply for emergency housing?*
 
 *Can I help with anything at all?*
 
@@ -82,7 +82,7 @@ You see in how asking that question is not all that simple.
 
 Based on what I learned. I sort of developed a little understanding of what can be done to help. 
 
--Supplies
+- Supplies
 Its no secret that the homeless population need supplies. Something to eat is definately up there
 that its requested and blankets. One of the things that can help you get by is prepping some sandwiches
 or giving out something small to a group as first come first serve. If you see a homeless woman 
@@ -90,7 +90,7 @@ approach you, ask her if she has basic feminine hygine products. You'll be surpr
 will tell you that they don't and struggle to find as such. Especially if they are in their time of
 the month. 
 
--Shelters
+- Shelters
 If you were to ask about how the homeless population view shelters. You'll most likely get different
 responses. Some of them will say that shelters do help. Some will tell you the complete opposite.
 Neither side is wrong. The truth of the matter is that shelters are completely understaffed. And as
@@ -98,7 +98,7 @@ much as they try to do their best. But in some areas they still lack. If you are
 shelter out. You can. Make sure you research the shelter or the NPO to make sure they are reputable.
 Be of help to the shelter, even in areas that they are vulnerable in. In helping them, you help others. 
 
--Addiction
+- Addiction
 More than likely with every homeless population in america. There will be some or many that are in 
 some sort of drug addiction. And contrary to what many people like to think that they are violent 
 and/or unstable with mental health problems. Hardly people take the time to figure out what causes 
@@ -111,7 +111,7 @@ You can save someone's life. and keep in mind, the homeless person may hate you 
 moment. But if by the miracle they get on their feet, they may be grateful to you that you did for
 them, what they couldn't see for themselves then as they were escaping from their pain. 
 
--Listening 
+- Listening 
 You read that right. More than often, many who are homeless or homeless addicts can 
 refuse all the help in the world if it isn't money. But the one thing, they have less time to 
 refuse is somebody listening to them. People tend to forget that many of them
@@ -126,25 +126,25 @@ on the way. If they need supplies, if you have some, provide. If they wish for t
 to them. Anything positive that they can ask, try to provide for them in the capabitaites that you can. 
 Remember, this op is a selfless one. Treat it as such. Dress casual and simple.
 
--Maintain relationships with other allies.
+- Maintain relationships with other allies.
 Sometimes local businesses if open enough, can be an ally for you in this op. Obviously not all the
 time but there are times when businessness can ship in and help to provide. Same can be said with NPO
 or Orgs that provide free laundry and showers to the homeless population.
 
--Sometimes, you have to let them, help themselves.
+- Sometimes, you have to let them, help themselves.
 One of the misconceptions is that every homeless person is meant to be saved. The truth is not
 every homeless circumstances is the same. Your purpose should be to be an aid if in need, not to save
 them from themselves. Its easy to get lost in the cause to help others. But also remember that you're
 your own person too. Self-care is essential in doing this work. Its rewarding but also just as 
 consuming. Pace yourself. You matter as well.  
 
-Follow up
+- Follow up
 Because when you follow up with a group of people who are mostly overlooked, unseen and ignored. It means
 alot.
 
 <ins>*In what not to do*</ins>
 
--Use the homeless population for social currency
+- Use the homeless population for social currency
 Now this wasn't a thing before. But ever since the youtube channel 'Soft white underbelly' came to 
 predominance. Many who try to find these characters to interview or see what they are. In itself can be a
 catch 22 scenario where you can put them more at risk. Also, most who see the camera and see the person
