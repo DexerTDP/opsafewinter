@@ -22,7 +22,7 @@ priority.
 However, that changed this year when around the fall, I was notified that some one I knew fell 
 to hard times that they ended up being homeless.
 
-"...Everyone would rather be on the street then get robbed or raped every night."
+<ins>"...Everyone would rather be on the street then get robbed or raped every night."</ins>
 
 A friend recently echoed this statement recently.
 
@@ -49,8 +49,8 @@ to help. But the more drained I felt, the hopelessness creeped in and then I sta
 
 It was then that I realized that its more than homeless that the friend was dealing with
 
-"...In many instances, substance abuse is the result of the stress of homelessness, 
-rather than the other way around."
+<ins>"...In many instances, substance abuse is the result of the stress of homelessness, 
+rather than the other way around."</ins>
 
 Its no secret that with the homeless population, there's an overwheling amount of them that are more
 than likely dealing with substance abuse. The most prevelant drug of choice right now is of course
@@ -67,7 +67,7 @@ from spice.
 
 From there, I realized that this op in paritcular was multiple ops rolled into one. 
 
-How to help?
+<ins>How to help?</ins>
 
 This is the toughest question to ask because how can you help is such a broad question.
 
@@ -142,7 +142,7 @@ consuming. Pace yourself. You matter as well.
 Because when you follow up with a group of people who are mostly overlooked, unseen and ignored. It means
 alot.
 
-In what not to do
+<ins>In what not to do</ins>
 *Use the homeless population for social currency
 Now this wasn't a thing before. But ever since the youtube channel 'Soft white underbelly' came to 
 predominance. Many who try to find these characters to interview or see what they are. In itself can be a
@@ -153,7 +153,7 @@ but overall its best in some circumstances to help without the need of the camer
 
 Now for the next topic. 
 
-".. Being a woman and homeless is another animal."
+<ins>".. Being a woman and homeless is another animal."</ins>
 
 This is true. Women who are homeless almost historically have alot in their plate to deal with being
 homeless. Especially if you add addiction or any type of crime they maybe victims of into the equation. 
