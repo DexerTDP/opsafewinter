@@ -191,13 +191,13 @@ At the end, we are only helping each other.
 
 ---
 
-Plan Of Action
+*Plan Of Action*
 
 Normally I wouldn't be the right person to write this as I'm currently still trying to process all that
 I went through with my friend this year. But I guess for the same reason maybe I can lend a hand and
 mention a few things
 
-- Supplies and food
+<ins>Supplies and food</ins>
 I would recommend CVS, Walmart or Costco to get supplies. CVS / Walmart for any tolietries and/or first 
 aid, meds, etc. Now sure in costco you can get much of the same but in bulk. Depdending how frequent you 
 may want to help. I would say pack up on tents, blankets, Wipes, Feminine Hygine products, dedorant. 
@@ -206,7 +206,7 @@ In terms of food. It would be wise to usually hand out sandwiches or wraps. Its 
 give out without any ultensis needed. You can vary or shift how each aid run you will do Like a week will
 be give home cooked food and another week take them something from a shop 
 
-- Gear
+<ins>Gear</ins>
 
 When I used to do this endeveor. I would wear a neon vest, same as construction workers would wear. Was it
 weird? sure. But I would wear it so its easy for people to see that you are there to be of aid service. 
@@ -234,7 +234,7 @@ near you, a dollar store. Also invest in pepper spray for protection too.
 also, for those who drive a car. Leave your car a lil far from where you will be providing aid for. If you
 can, just take the bus. 
 
-- Contact Numbers & Resources.
+<ins>Contact Numbers & Resources</ins>
 
 Now this is somewhat important as part of this is to be of aid for the homeless community. 
 Know the numbers that you know can be of help like detox facities, local 211 area, shelter numbers, clinic
@@ -243,17 +243,17 @@ etc.
 I will list some numbers and links in this writing but there's many of them that I'll take time to fill
 the complete list in them. 
 
-211: No matter which state you are, this number will help you get some resouces of help
-911: Emergency service (only call them if there's a situation that has escalated beyond your control)
-Homeless Directory: https://www.homelessshelterdirectory.org/
-National Colition of Homeless services: https://nationalhomeless.org/regions-resources/
-Project H.E.L.P: https://homelesslegalprotection.com/
-Shower up: https://showerup.org/
-Shower of Hope: https://www.theshowerofhope.org/
-Shower of Power: https://www.showerpowernyc.org/
-Free Clinic Finder: https://freeclinicfinder.org/
+- 211: No matter which state you are, this number will help you get some resouces of help
+- 911: Emergency service (only call them if there's a situation that has escalated beyond your control)
+- Homeless Directory: https://www.homelessshelterdirectory.org/
+- National Colition of Homeless services: https://nationalhomeless.org/regions-resources/
+- Project H.E.L.P: https://homelesslegalprotection.com/
+- Shower up: https://showerup.org/
+- Shower of Hope: https://www.theshowerofhope.org/
+- Shower of Power: https://www.showerpowernyc.org/
+- Free Clinic Finder: https://freeclinicfinder.org/
 
-- Should you give money or not?
+<ins>Should you give money or not?</ins>
 This in itself is always the pondering question. And i'll give you a simplistic answer. If you do give
 money that's sort of giving a signal that you'll have money on you every time you go out. If you got it
 then cool. If not, just something to consider.
