@@ -188,3 +188,74 @@ But I would want to at least start a conversation in how to improve the human co
 You can improve the small guidelines to how you seen fit and how much you can contribute.
 
 At the end, we are only helping each other. 
+
+---
+
+Plan Of Action
+
+Normally I wouldn't be the right person to write this as I'm currently still trying to process all that
+I went through with my friend this year. But I guess for the same reason maybe I can lend a hand and
+mention a few things
+
+- Supplies and food
+I would recommend CVS, Walmart or Costco to get supplies. CVS / Walmart for any tolietries and/or first 
+aid, meds, etc. Now sure in costco you can get much of the same but in bulk. Depdending how frequent you 
+may want to help. I would say pack up on tents, blankets, Wipes, Feminine Hygine products, dedorant. 
+
+In terms of food. It would be wise to usually hand out sandwiches or wraps. Its the easist to carry and 
+give out without any ultensis needed. You can vary or shift how each aid run you will do Like a week will
+be give home cooked food and another week take them something from a shop 
+
+- Gear
+
+When I used to do this endeveor. I would wear a neon vest, same as construction workers would wear. Was it
+weird? sure. But I would wear it so its easy for people to see that you are there to be of aid service. 
+Now in term of vest color, that's up to preference of the person. I would stay out of using anything 
+labeled first aid or EMT unless you had proper training for that or are a certified medical personel. If 
+you are an anon and want to put the anon logo in the vest then feel free. It helps spread the message of
+anonymous in a different way which is a win win. 
+
+Dress casual with comfortable shoes in case you are doing a check around (which involves going on a walk
+on some blocks to see how everyone is.) Carry a simple backpack with you or a black plastic bag to carry 
+your things as you do your run. 
+
+Will you be scared the first time you do this? hell yes. It will be terrifying and you'll be nervous
+as shit. Which is why you would want to start small. And your best friend in this is in the bus stops that
+many homeless may tend to be around just to get by. 
+
+That or a intersection where there's many homeless encampments. The key here is to open repetiore with 
+them. If they reject your help, don't take it personal. Just move along and say you understand with 
+empathy. 
+
+Also as a word of precaution, take a phone with you that is of an older version or outdated with prepaid
+minutes just to move around. You can buy a simple phone for this at your local walmart or if you have one
+near you, a dollar store. Also invest in pepper spray for protection too. 
+
+also, for those who drive a car. Leave your car a lil far from where you will be providing aid for. If you
+can, just take the bus. 
+
+- Contact Numbers & Resources.
+
+Now this is somewhat important as part of this is to be of aid for the homeless community. 
+Know the numbers that you know can be of help like detox facities, local 211 area, shelter numbers, clinic
+etc. 
+
+I will list some numbers and links in this writing but there's many of them that I'll take time to fill
+the complete list in them. 
+
+211: No matter which state you are, this number will help you get some resouces of help
+911: Emergency service (only call them if there's a situation that has escalated beyond your control)
+Homeless Directory: https://www.homelessshelterdirectory.org/
+National Colition of Homeless services: https://nationalhomeless.org/regions-resources/
+Project H.E.L.P: https://homelesslegalprotection.com/
+Shower up: https://showerup.org/
+Shower of Hope: https://www.theshowerofhope.org/
+Shower of Power: https://www.showerpowernyc.org/
+Free Clinic Finder: https://freeclinicfinder.org/
+
+- Should you give money or not?
+This in itself is always the pondering question. And i'll give you a simplistic answer. If you do give
+money that's sort of giving a signal that you'll have money on you every time you go out. If you got it
+then cool. If not, just something to consider.
+
+Originally Published on December 13, 2024 | Edited on December 16, 2024 @ 5:36 pm EST
