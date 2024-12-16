@@ -199,12 +199,12 @@ mention a few things
 
 <ins>Supplies and food</ins>
 
-I would recommend CVS, Walmart or Costco to get supplies. CVS / Walmart for any tolietries and/or first 
+I would recommend CVS, Walmart or Costco to get supplies. CVS / Walmart for any toiletries and/or first 
 aid, meds, etc. Now sure in costco you can get much of the same but in bulk. Depdending how frequent you 
 may want to help. I would say pack up on tents, blankets, Wipes, Feminine Hygine products, dedorant. 
 
 In terms of food. It would be wise to usually hand out sandwiches or wraps. Its the easist to carry and 
-give out without any ultensis needed. You can vary or shift how each aid run you will do Like a week will
+give out without any utensils needed. You can vary or shift how each aid run you will do Like a week will
 be give home cooked food and another week take them something from a shop 
 
 <ins>Gear</ins>
@@ -217,7 +217,7 @@ you are an anon and want to put the anon logo in the vest then feel free. It hel
 anonymous in a different way which is a win win. 
 
 Dress casual with comfortable shoes in case you are doing a check around (which involves going on a walk
-on some blocks to see how everyone is.) Carry a simple backpack with you or a black plastic bag to carry 
+on some blocks to see how everyone is) carry a simple backpack with you or a black plastic bag to carry 
 your things as you do your run. 
 
 Will you be scared the first time you do this? hell yes. It will be terrifying and you'll be nervous
@@ -260,4 +260,4 @@ This in itself is always the pondering question. And i'll give you a simplistic 
 money that's sort of giving a signal that you'll have money on you every time you go out. If you got it
 then cool. If not, just something to consider.
 
-Originally Published on December 13, 2024 | Edited on December 16, 2024 @ 5:42 pm EST
+Originally Published on December 13, 2024 | Edited on December 16, 2024 @ 5:52 pm EST
