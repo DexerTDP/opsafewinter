@@ -198,6 +198,7 @@ I went through with my friend this year. But I guess for the same reason maybe I
 mention a few things
 
 <ins>Supplies and food</ins>
+
 I would recommend CVS, Walmart or Costco to get supplies. CVS / Walmart for any tolietries and/or first 
 aid, meds, etc. Now sure in costco you can get much of the same but in bulk. Depdending how frequent you 
 may want to help. I would say pack up on tents, blankets, Wipes, Feminine Hygine products, dedorant. 
@@ -258,4 +259,4 @@ This in itself is always the pondering question. And i'll give you a simplistic 
 money that's sort of giving a signal that you'll have money on you every time you go out. If you got it
 then cool. If not, just something to consider.
 
-Originally Published on December 13, 2024 | Edited on December 16, 2024 @ 5:36 pm EST
+Originally Published on December 13, 2024 | Edited on December 16, 2024 @ 5:41 pm EST
