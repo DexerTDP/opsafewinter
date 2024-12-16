@@ -255,8 +255,9 @@ the complete list in them.
 - Free Clinic Finder: https://freeclinicfinder.org/
 
 <ins>Should you give money or not?</ins>
+
 This in itself is always the pondering question. And i'll give you a simplistic answer. If you do give
 money that's sort of giving a signal that you'll have money on you every time you go out. If you got it
 then cool. If not, just something to consider.
 
-Originally Published on December 13, 2024 | Edited on December 16, 2024 @ 5:41 pm EST
+Originally Published on December 13, 2024 | Edited on December 16, 2024 @ 5:42 pm EST
